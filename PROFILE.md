@@ -1,1 +1,1 @@
-Wlcome to my GibHub profile!
+Welcome to my GibHub profile!
